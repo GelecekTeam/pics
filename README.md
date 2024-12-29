@@ -1,1 +1,1 @@
-Do something Creative and Send me your creative pics to me with Discord (Ducky) and i will post it here :3
+Feel free to send me your creative pictures on Discord (Ducky). Keep in mind that these pictures are copyrighted by me and/or the fans, so they are only for private use. Please do not share them online or anywhere else without my explicit permission. 😊
